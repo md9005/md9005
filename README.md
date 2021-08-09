@@ -1,4 +1,4 @@
-### Eaw! eu sou o murilo 😃 👋
+### Oi! eu sou o murilo 😃 👋
 
 <div>
   <a href="https://github.com/md9005">
